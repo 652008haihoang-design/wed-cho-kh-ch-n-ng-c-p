@@ -1,1 +1,0 @@
-# wed-cho-kh-ch-n-ng-c-p
